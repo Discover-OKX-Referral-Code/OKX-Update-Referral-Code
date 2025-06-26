@@ -1,10 +1,10 @@
 # OKX Update Referral Code " 96613811" ( Unlock $12,000 Bonus and 50% Fee Discount)
 
-**Join OKX, one of the world’s most trusted cryptocurrency exchanges, and enjoy up to $5,000 in welcome bonuses when you sign up using referral code " 96613811".  Whether you're a beginner or a seasoned trader, OKX provides a safe, powerful, and rewarding platform to trade, invest, and grow your crypto portfolio**
+**Join OKX, one of the world’s most trusted cryptocurrency exchanges, and enjoy up to $12,000 in welcome bonuses when you sign up using referral code " 96613811".  Whether you're a beginner or a seasoned trader, OKX provides a safe, powerful, and rewarding platform to trade, invest, and grow your crypto portfolio**
 
 🎁 **What You Get with Referral Code " 96613811"**
 
-💸 Welcome Bonus up to $5,000: Complete beginner-friendly tasks like making your first deposit or placing a trade to unlock a tiered reward system.
+💸 Welcome Bonus up to $12,000: Complete beginner-friendly tasks like making your first deposit or placing a trade to unlock a tiered reward system.
 
 🔻 20–50% Trading Fee Discount: Keep more profits on every trade with reduced spot and futures fees.
 
@@ -24,7 +24,7 @@ Unlike many exchanges that focus solely on trading, OKX is building an entire cr
 
 With low fees, fast execution, and a sleek mobile app, OKX empowers traders of every experience level to trade smarter and earn more. Whether you're day trading Bitcoin or exploring DeFi tokens, OKX gives you the tools and the edge you need.
 
-📝 **How to Claim Your $5,000 Bonus with Code " 96613811"**
+📝 **How to Claim Your $12,000 Bonus with Code " 96613811"**
 
 🔗 Go to : https://okx.com/join/96613811
 
@@ -39,7 +39,7 @@ With low fees, fast execution, and a sleek mobile app, OKX empowers traders of e
 ⏰ Note: Bonuses are time-sensitive. Claim them within 30 days of registration to maximize your benefits!
 
 🔍 
-**Join OKX and use referral code " 96613811 " to get up to $5,000 in bonuses and discounted trading fees. Start your crypto journey with a trusted global exchange today**!
+**Join OKX and use referral code " 96613811 " to get up to $12,000 in bonuses and discounted trading fees. Start your crypto journey with a trusted global exchange today**!
 
 🗣 **Final Thoughts**
 
